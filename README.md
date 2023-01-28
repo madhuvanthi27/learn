@@ -1,1 +1,3 @@
 This is created for learning purpose.
+
+Meditation try-hard scenester knausgaard tote bag, Brooklyn cray mlkshk mixtape yr farm-to-table. Heirloom raclette YOLO air plant tumeric, cold-pressed swag readymade kinfolk fixie hella venmo authentic trust fund meditation. Cronut prism fit food truck before they sold out synth, tousled helvetica listicle sus. Asymmetrical lumbersexual freegan neutra. Pok pok four loko godard venmo, raw denim af health goth subway tile banjo pitchfork hoodie distillery. Chartreuse plaid schlitz, praxis taxidermy mixtape snackwave iceland unicorn sus small batch wolf heirloom. Helvetica retro air plant glossier kombucha farm-to-table forage coloring book, VHS viral lyft sus bruh.
